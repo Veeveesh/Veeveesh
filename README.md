@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Veeveesh
+- 👋 Hi, I’m Ihesiaba Amarachi Adanna-Vivian(@Veeveesh)
 - 👀 I’m interested in Data analysis and Effective Visualisations
 - 🌱 I’m currently learning Data Analysis
 - 💞️ I’m looking to collaborate on Innovative and insightful projects
